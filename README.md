@@ -1,1 +1,0 @@
-# forest-fire-project
